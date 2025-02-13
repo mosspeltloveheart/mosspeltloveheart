@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to code/hack
 - 💞️ I’m looking to collaborate on anything and i'll try my best to help
 - 📫 How to reach me @scratchgirl809@gmail.com
--  scratch @Mosspelt_loveheart
+- 😺 scratch account :@Mosspelt_loveheart
 - 😄 Pronouns:She,her
 - ⚡ Fun fact: I can jailbreak any phone and im not that active so it may take me a sec to do something or answer questions
 <!---
