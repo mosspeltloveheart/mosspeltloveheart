@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mosspeltloveheart you can call me Moss or Swiftfur(dont ask)
+- 👋 Hi, I’m @mosspeltloveheart you can call me Moss or Swiftfur
 - 👀 I’m interested in pokemon and warrior cats and any securly hack codes to get my teachers off my back 🤫
 - 🌱 I’m currently learning how to code/hack
 - 💞️ I’m looking to collaborate on anything and i'll try my best to help
